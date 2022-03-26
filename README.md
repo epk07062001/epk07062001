@@ -4,5 +4,4 @@
 - 💞️ I’m looking to collaborate on projects and open source works
 - 📫 How to reach me - mail me at: praveenekumar76@gmail.com
 
-"ENJOY LIFE Cuz YOU NEVER KNOW WHEN DEATH KNOCKS YOU DOWN"
 
